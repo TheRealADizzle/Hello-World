@@ -9,3 +9,6 @@ I love technology, especially when it comes to video games. Wether its playing b
 
 # Hobbies
 Some things that I like to do if i'm not gaming is watching TV, Talking with family, or just playing around with my cousins in another fanatsy world 😄
+
+# Favorite Shows
+Majority of my Favorite Shows are Anime, Such as Demon Slayer, Naruto, Apple Black, and NIMA
