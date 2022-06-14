@@ -1,4 +1,4 @@
-![headshot](maxresdefault)
+![headshot](DomaHeadshotPicture.jpg)
 # A Little About Me, Adizzle
 Hello! My name is Adizzle and I am just a guy currently getting into coding. This README will give you a bit of information about me!
 
