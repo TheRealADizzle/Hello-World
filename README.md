@@ -1,3 +1,6 @@
+![tumblr_8f291319f51f405afb3b2e1312374688_d08a7ebe_250](https://user-images.githubusercontent.com/107438827/173666828-b0a086c7-d5f5-43ee-855a-45efd7168fd7.png)
+
+
 # A Little About Me, Adizzle
 Hello! My name is Adizzle and I am just a guy currently getting into coding. This README will give you a bit of information about me!
 
