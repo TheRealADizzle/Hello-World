@@ -12,3 +12,6 @@ Some things that I like to do if i'm not gaming is watching TV, Talking with fam
 
 # Favorite Shows
 Majority of my Favorite Shows are Anime, Such as Demon Slayer, Naruto, Apple Black, and NIMA
+
+# Favorite Books
+I love to read! I really enjoy sitting on my bed or couch and whipping out a good book. Though I do like reading normal books, I enjoy manga the most. If you dont know what that is, manga is a style of Japanese comic books and graphic novels, typically aimed at adults as well as children.
